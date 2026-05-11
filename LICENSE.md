@@ -1,4 +1,4 @@
-#  
+#  Experience drag drive simulator like never before with best Scripts for drag drive simulator, the #1 Script. Includes esp and unlimited stamina for
 
 
 
